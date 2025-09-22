@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **shubhamsahu5122333@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1qXlxFXl1S2_IYvQa6St5naYdlBDWAMda/view?usp=sharing](https://drive.google.com/file/d/1qXlxFXl1S2_IYvQa6St5naYdlBDWAMda/view?usp=sharing)
+- 📄 Know about my experiences (https://drive.google.com/file/d/1m46nhAGkgzrc_-RZxDndudnkQHU02QIU/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
